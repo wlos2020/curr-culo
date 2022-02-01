@@ -10,6 +10,8 @@ Linkedin: https://www.linkedin.com/in/washington-oliveira/
 
 Instagram: https://www.instagram.com/wlos.2022/
 
+E-mail: wlos@hotmail.com
+
 
 ### FORMAÇÃO ACADÊMICA
 *Analise e Desenvolvimento de Sistemas
